@@ -7,3 +7,5 @@ cc/linking it to n o m i a l and reapplying and everything
 word for fking word, im reiterating https://www.tiktok.com/@sam.jay05/video/7556567980889394462
 
 have u heard of this before, ive had it saved for yrs on a sticky note:  "if kings knew the sweetness of our faith/affairs/life, they would come here with their armies to take it from us" - imam hanifa ... but these so called kings are made out of 1-PLY toilet paper lol
+
+i will give u ur peace, i dont have a chaotic life anyway but u have to give me my peace as well, i dont want u doing chaotic sh*t
